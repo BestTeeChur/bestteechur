@@ -1,9 +1,9 @@
 ## Hi there 👋
 
-dshgiopadfjgjksajfglkjdsfkhgoiadlsg
-dghjsfdklgjdalghjsldfg
-asdghudfsgjesa
-dgfdshg
-adsg
-adhffghjadhgfjldfshjgldsfhgasdghfadg
-dragjifghadfoogibhjdf
+![Yakko Warner from Animaniacs looking at a phone with a dissapointed face](yakko_sad.jpg)
+
+It's me! Tee Chur! 
+
+<!-- 
+fdsajlkgasjigljkdashfgjlasdhgfjlas
+-->
